@@ -35,4 +35,4 @@
 * ~~Diet + Regular Rootbeer (for non-drinkers?)~~
 * Plates/Cups (the latter very important for what we are doing) (**get from $ Store**)
 * Sample cups (for other beers? and disposable?) (**get from $ Store**)
-* Wine (**get from $ Store**)
+* Wine (**get from Store**)
