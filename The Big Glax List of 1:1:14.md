@@ -30,8 +30,9 @@
 * Apples?
 * Hummus (for party or personal)
 * Skinny Pop Popcorn (low calorie popcorn with flavor) <http://www.amazon.com/Skinny-Pop-Popcorn-10-oz/dp/B007P0549U>
-* Chocolate Syrup
-* Other low calorie toppings?
-* Diet + Regular Rootbeer (for non-drinkers?)
-* Plates/Cups (the latter very important for what we are doing)
-* Sample cups (for other beers? and disposable?)
+* ~~Chocolate Syrup~~
+* ~~Other low calorie toppings?~~
+* ~~Diet + Regular Rootbeer (for non-drinkers?)~~
+* Plates/Cups (the latter very important for what we are doing) (**get from $ Store**)
+* Sample cups (for other beers? and disposable?) (**get from $ Store**)
+* Wine (**get from $ Store**)
