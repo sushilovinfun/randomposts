@@ -4,7 +4,7 @@
 * ~~Write back to Ashley and Greg saying not feeling well (5 minutes)~~
 * *Glo* Glo and I (Max 'CCed) write back apologizing for the abrupt end of the evening. (10 minutes)
 * ~~*Max* Write back to John (5 minutes)~~ 
-* *Max* PCA + Journal about PCA Article (20 minutes)
+* ~~*Max* PCA + Journal about PCA Article (20 minutes~~
 * *Max* Fold Laundry (20 minutes)
 * *Glo* Glo sorts Laundry (1 hr)
 * *M&G* Party Supplies (1/2 hr)
