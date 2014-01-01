@@ -8,7 +8,7 @@
 * *Max* Fold Laundry (20 minutes)
 * *Glo* Glo sorts Laundry (1 hr)
 * *M&G* Party Supplies (1/2 hr)
-* *Glo* Ask Peggy for *snickerdoods* recipe (5 min)
+* ~~*Glo* Ask Peggy for *snickerdoods* recipe (5 min)~~
 * *M&G* General grocery list! (1/2 hr)
 * *M&G* Plan out Saturday and Sunday *good idea to do together because we are together* (1 hr)
 * *Glo* Investigate Coop make-up shift for Sunday (1/2 hr)
@@ -25,5 +25,3 @@
 ## Groceries
 * Possible Ice Creams:
 	* Steve's Ice Cream - No. 34 Salty Caramel
-    * Ben & Jerry's - Coffee Heath Bar Crunch Ice Cream
-    * 
