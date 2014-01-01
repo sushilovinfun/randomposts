@@ -7,9 +7,9 @@
 * ~~*Max* PCA + Journal about PCA Article (20 minutes~~
 * *Max* Fold Laundry (20 minutes)
 * *Glo* Glo sorts Laundry (1 hr)
-* *M&G* Party Supplies (1/2 hr)
+* ~~*M&G* Party Supplies (1/2 hr)~~
 * ~~*Glo* Ask Peggy for *snickerdoods* recipe (5 min)~~
-* *M&G* General grocery list! (1/2 hr)
+* ~~*M&G* General grocery list! (1/2 hr)~~
 * ~~*M&G* Plan out Saturday and Sunday *good idea to do together because we are together* (1 hr)~~
 * *Glo* Investigate Coop make-up shift for Sunday (1/2 hr)
 * ~~*Max* Write back to everyone who wished us a happy new year (10 minutes)~~
