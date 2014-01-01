@@ -22,7 +22,7 @@
 
 **Max Full time** - 4.41 Hours
 
-## Groceries for Party
+## Groceries for Life and Party
 * Possible Ice Creams:
 	* Steve's Ice Cream - No. 34 Salty Caramel, Small Batch Bourbon Vanilla, Mexican Chile Chocolate, Strawberry Riccota
 	* Also Beer Flavored Icea Cream if it Exists
