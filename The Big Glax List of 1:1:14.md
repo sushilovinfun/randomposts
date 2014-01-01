@@ -22,6 +22,14 @@
 
 **Max Full time** - 4.41 Hours
 
-## Groceries
+## Groceries for Party
 * Possible Ice Creams:
-	* Steve's Ice Cream - No. 34 Salty Caramel
+	* Steve's Ice Cream - No. 34 Salty Caramel, Small Batch Bourbon Vanilla, Mexican Chile Chocolate, Strawberry Riccota
+	* Also Beer Flavored Icea Cream if it Exists
+	* Cookie Dough as possible "Big" Ice Cream?
+* Apples?
+* Hummus (for party or personal)
+* Skinny Pop Popcorn (low calorie popcorn with flavor) <http://www.amazon.com/Skinny-Pop-Popcorn-10-oz/dp/B007P0549U>
+* Chocolate Syrup
+* Other low calorie toppings?
+* Diet + Regular Rootbeer (for non-drinkers?)
