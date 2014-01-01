@@ -33,3 +33,5 @@
 * Chocolate Syrup
 * Other low calorie toppings?
 * Diet + Regular Rootbeer (for non-drinkers?)
+* Plates/Cups (the latter very important for what we are doing)
+* Sample cups (for other beers? and disposable?)
