@@ -24,24 +24,9 @@ Max
 
 * Set up meeting with Mark Hansen, but do research first.
 * Email Jose recommendations
-	* David Nieborg - specialized in mobile games and game apps - <D.B.Nieborg@uva.nl >
-	* Email Thomas Poell - <poell@uva.nl> activism and social media nad co-organizing the confierence
+
 	* Check in with Jose yourseful after you have sent out the CFP
 
-Hello David,
-
-My name is Maxwell Foxman and I am a PhD student, studying Communications at Columbia University. When José van Dijck came to our school and spoke at our colloquium this previous semester, she mentioned that I should speak to you about my research, which focuses broadly on Internet Culture. I am particularly interested in how the web might incite playful activity, and as a consequence have looked quite a bit at gamification, but I have also explored relationship between play and transgression on the web, as well as mobile dating applications, among other things. José thought you might be able to provide some insight on how to proceed ahead with my own studies, which certainly are informed by game studies and mobile media. I would be incredibly interested in hearing more about your own work, and if you could answer some more specific questions, I would be very appreciative. I don't know if you are planning on coming to New York City any time soon, but I would gladly buy you a drink or a cup of coffee if you were! If not, I  would happily chat via email or Skype. Whatever you find convenient! Thanks in advance for any and all help. I look forward to chatting more soon.
-
-Sincerely,
-Max
-***
-Thomas,
-
-My name is Maxwell Foxman and I am a PhD student, studying Communications at Columbia University. When José van Dijck came to our school and spoke at our colloquium this previous semester, she mentioned that I should speak to you about my research, which focuses broadly on Internet Culture. However, I have also done some work on social movements and José thought I might knowledge of RCADE, the debt resistence movement from Spain which in the early 2000s used networking and Internet metaphors in their rhetoric. You may know all about RCADE, so I apologize if the summary was at all repetitive. However, I would definitely be interested in hearing about your own work, which I understand has to do with social media and activitism, according to José. If you have any time to chat, either via email or Skype, I would greatly appreciate it! I look forward to hopefully speaking to you soon.
-
-Sincerely,
-Max
-***
 José,
 
 I hope the new year finds you well. I just wanted to provide you with a brief update on some of our conversations from when you visited Columbia last semester. I have sent out the CFP to our listserv and am hoping to organize a panel. I, myself, am thinking of submitting some work on what I have been calling "conspicuous collection," and "peer preservation" which I have been studying in terms of piracy communities. However, that is still a bit up in the air and will depend on the work my potential co-presenters from CU will want to do in the panel. I have also sent messages to David and Thomas, regarding their work. I remembered that you also recommending a summer institute in the Netherlands that you thought might be a good fit for me, potentially about either games or social media, and I was wondering if I could direct me to more information about it. I also am proceeding ahead with some experiments in methodology based on our conversation, doing a multi-modal analysis of daily habits online, starting with phenomenology, but working my way concentrically outward. Todd Gitlin has agreed to help me a bit with it and I am hoping to have some more progress with that by the end of the semester. I hope your work is going well. I ended up reading a fair amount of your work and writing a bit about it for a class where I discussed memory, social media and gamification software. It was incredibly helpful. I hope to see you in the Netherlands in 2014, or some time soon and thanks again for all of the help.
