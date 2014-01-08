@@ -17,7 +17,7 @@
 * You should also reach out to Zachary Fitz-Walter <z.fitz-walter@qut.edu.au>, who is currently in the process of doing a lit review (on gamification) for writing up his thesis as well.
 * Email Finn Brunton -- Possibly after or before. Maybe check in with Brett Gary about name dropping
 * Send out CFP to listserv
-* Email Matt Jones -- Send a check-in email to CHarles
+* Email Matt Jones -- Send a check-in email to Charles
 
 ### Other
 
