@@ -4,7 +4,7 @@
 
 ### School
 
-* Email Liel & Joost
+* Email Liel & Joost **waiting on burcu**
 
 Liel and Joost,
 
@@ -13,7 +13,7 @@ Happy New Year! Following up on the possibility of talking: The schedule for the
 Sincerely,
 Max
 
-* Email Liel separately
+* Email Liel separately **waiting on burcu**
 
 Liel,
 
@@ -47,7 +47,7 @@ At any rate, I realize this might be a bit much to respond to, but let me know a
 Sincerely,
 Max
 
-* Email Chris Hill & Fred Turner -- suggest some sort of informal meeting but also ask Chris what he thinks is best
+* Email Chris Hill & Fred Turner -- suggest some sort of informal meeting but also ask Chris what he thinks is best **waiting on burcu**
 
 Professor Turner,
 
@@ -57,9 +57,9 @@ Sincerely,
 Max
 
 
-* Email Finn Brunton -- Possibly after or before. Maybe check in with Brett Gary about name dropping - Checked in with Burcu about this
+* Email Finn Brunton -- Possibly after or before. Maybe check in with Brett Gary about name dropping - Checked in with Burcu about this **waiting on burcu**
 
-* Email Matt Jones -- Send a check-in email to Charles
+* Email Matt Jones -- Send a check-in email to Charles **waiting on charles**
 
 Matt,
 
