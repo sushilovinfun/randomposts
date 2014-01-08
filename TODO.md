@@ -56,25 +56,8 @@ My name is Maxwell Foxman and I am a PhD candidate at Columbia University's Comm
 Sincerely,
 Max
 
-* You should also reach out to Zachary Fitz-Walter <z.fitz-walter@qut.edu.au>, who is currently in the process of doing a lit review (on gamification) for writing up his thesis as well.
 
-Hello Zachary,
-
-My name is Maxwell Foxman and I am a PhD student in Communications at Columbia University, where I am studying gamification, ludification and playfulness on the web. Sebastian Deterding suggested I contact you about your thesis, as we both are constructing literature reviews for gamification. If you had any time to discuss what you have found, or trade resources, I would be very grateful. What exactly are your studying about gamification? Sebastian didnt' say. Thanks in advance for any and all help.
-
-Sincerely,
-Max
-
-* Email Finn Brunton -- Possibly after or before. Maybe check in with Brett Gary about name dropping - Checked in with Burcu about this already
-
-* Send out CFP to listserv
-
-Hello All:
-
-Happy New Year! José send me the attached CFP for her conference in June concerning Social Media and the Public Sphere. She encouraged me to say that they are open to and interested in panels from our program. I certainly would happily take the lead in beginning to organize one for any interested parties. If you would like to put something together, please contact me off-server... I think we could put together something pretty interesting.
-
-Sincerely,
-Max
+* Email Finn Brunton -- Possibly after or before. Maybe check in with Brett Gary about name dropping - Checked in with Burcu about this
 
 * Email Matt Jones -- Send a check-in email to Charles
 
