@@ -22,15 +22,6 @@ I just sent you and Joost an email, but would definitely like to catch up before
 Sincerely,
 Max
 
-* Email Taylor Owen
-
-Taylor,
-
-I think we have met for a few minutes, but to reintroduce myself, my name is Max and I'm a member of the Communications program. I have been working quite a bit with Dennis Tenen at piracyLab and Charles Berret, both of whom have told me quite a few times that we should meet. I was hoping that before the new semester is in full swing, I might grab a cup of coffee with you and talk about Tow, as well as well as some of the work I have been doing, and specifically to see if my research interests might align with or be of aid to those at Tow. I am generally busy through January 16, but I would love to schedule a quick meeting for the 17th or later. Let me know if that works for you!
-
-Sincerely,
-Maxwell Foxman
-
 * Set up meeting with Mark Hansen, but do research first.
 * Email Jose recommendations
 	* David Nieborg - specialized in mobile games and game apps - <D.B.Nieborg@uva.nl >
