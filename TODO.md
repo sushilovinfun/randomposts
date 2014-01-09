@@ -4,9 +4,7 @@
 
 ### School
 
-
-* Email Chris Hill & Fred Turner -- suggest some sort of informal meeting but also ask Chris what he thinks is best **waiting on burcu**
-* Email Finn Brunton -- Possibly after or before. Maybe check in with Brett Gary about name dropping - Checked in with Burcu about this **waiting on burcu**
+* Email Chris Hill
 
 ### Other
 
@@ -34,4 +32,15 @@
 * Revisions due **January 21**
 * WBFGT due **January**
 * Dentist **January 29**
+* Check in with David **Late February**
 * Social Media and the Transformation of Public Space - **No later than March 7** -- distribute CFP to listserv
+
+## Reading
+
+* Thomas' Work
+
+## Random
+
+* Email Finn Brunton.^[1]
+
+[1] Need to hear about everyone else before I move ahead with this. Once schedule is confirmed can send him an email about mutual research interests and get in touch with *Brett Gary* about details.
