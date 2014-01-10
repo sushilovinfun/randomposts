@@ -10,6 +10,7 @@
 
 * Catch up with Ben
 * Time to hang out with Aditi
+* Email Travis about comic
 
 ## Tasks
 
