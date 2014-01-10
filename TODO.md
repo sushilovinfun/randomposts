@@ -4,6 +4,7 @@
 
 ### School
 
+<<<<<<< HEAD
 * Email Liel & Joost
 
 Email to Burcu:
@@ -31,6 +32,9 @@ Max
 * Email Finn Brunton -- Possibly after or before. Maybe check in with Brett Gary about name dropping
 * Send out CFP to listserv
 * Email Matt Jones -- Send a check-in email to Charles
+=======
+* Email Chris Hill
+>>>>>>> 4882c5558b8b33e359d1fd218c1e2786509f4b49
 
 ### Other
 
@@ -57,4 +61,15 @@ Max
 * Revisions due **January 21**
 * WBFGT due **January**
 * Dentist **January 29**
+* Check in with David **Late February**
 * Social Media and the Transformation of Public Space - **No later than March 7** -- distribute CFP to listserv
+
+## Reading
+
+* Thomas' Work
+
+## Random
+
+* Email Finn Brunton.^[1]
+
+[1] Need to hear about everyone else before I move ahead with this. Once schedule is confirmed can send him an email about mutual research interests and get in touch with *Brett Gary* about details.
