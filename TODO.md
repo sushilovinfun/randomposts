@@ -26,10 +26,6 @@
 
 ## Important Dates
 
-* Journal article due **January 15**
-* Kate fink gives job talk **January 16**
-* Doctor **January 16**
-* Revisions due **January 21**
 * WBFGT due **January**
 * Dentist **January 29**
 * Social Media and the Transformation of Public Space - **No later than March 7**
