@@ -8,6 +8,7 @@
 * Email Ivy *wait a few days for this*
 * Email Graham
 * Email David Stark back (Share Economy)
+* Email Andie - Course and Funding
 
 ### Other
 
