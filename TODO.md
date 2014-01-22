@@ -4,7 +4,6 @@
 
 ### School
 
-* ~Email Chris Hill~
 * Email Dennis - Re "R"
 * Email Ivy *wait a few days for this*
 * Email Graham  
