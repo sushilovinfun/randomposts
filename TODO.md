@@ -5,6 +5,10 @@
 ### School
 
 * Email Chris Hill
+* Email Liel
+* Email Dennis - Re "R"
+* Email Ivy
+* Email Graham
 
 ### Other
 
@@ -14,8 +18,7 @@
 
 ## Tasks
 
-* Weekend work on Journal article
-* Revisions - Michelle article
+* Research that conference that Luis reminded me of
 
 ## Longterm Research
 
@@ -32,7 +35,7 @@
 
 ## Reading
 
-* Thomas' Work
+* Thomas' Work - Not sure who Thomas is... review
 
 ## Random
 
