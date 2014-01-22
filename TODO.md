@@ -4,11 +4,11 @@
 
 ### School
 
-* Email Dennis - Re "R"
+* _Email Dennis - Re "R"_
 * Email Ivy *wait a few days for this*
 * Email Graham
 * Email David Stark back (Share Economy)
-* Email Andie - Course and Funding
+* _Email Andie - Course and Funding_
 
 ### Other
 
