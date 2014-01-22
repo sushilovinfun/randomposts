@@ -6,7 +6,8 @@
 
 * Email Dennis - Re "R"
 * Email Ivy *wait a few days for this*
-* Email Graham  
+* Email Graham
+* Email David Stark back (Share Economy)
 
 ### Other
 
