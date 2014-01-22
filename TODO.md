@@ -6,14 +6,14 @@
 
 * ~Email Chris Hill~
 * Email Dennis - Re "R"
-* Email Ivy
-* Email Graham  *wait a few days for this*
+* Email Ivy *wait a few days for this*
+* Email Graham  
 
 ### Other
 
 * Catch up with Ben
 * Time to hang out with Aditi
-* Email Travis about comic
+* Email Travis about comic *wait until after done with project with John*
 
 ## Tasks
 
@@ -30,6 +30,7 @@
 
 * WBFGT due **January**
 * Dentist **January 29**
+* Email Matt Jones again **January 31**
 * Social Media and the Transformation of Public Space - **No later than March 7**
 
 ## Reading
