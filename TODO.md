@@ -8,7 +8,8 @@
 * Email Liel
 * Email Dennis - Re "R"
 * Email Ivy
-* Email Graham
+* Email Graham  *wait a few days for this*
+* Email Rebecca
 
 ### Other
 
