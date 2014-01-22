@@ -4,12 +4,10 @@
 
 ### School
 
-* Email Chris Hill
-* Email Liel
+* ~Email Chris Hill~
 * Email Dennis - Re "R"
 * Email Ivy
 * Email Graham  *wait a few days for this*
-* Email Rebecca
 
 ### Other
 
