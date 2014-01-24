@@ -20,6 +20,7 @@
 * WBFGT - New plan to set up website
 * Check in on conference requirements and fees
 * Submit budget
+* Call Pellegrini
 
 ## Longterm Research
 
