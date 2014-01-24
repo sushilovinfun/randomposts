@@ -4,11 +4,10 @@
 
 ### School
 
-* _Email Dennis - Re "R"_
 * Email Ivy *wait a few days for this*
-* Email Graham
 * Email David Stark back (Share Economy)
-* _Email Andie - Course and Funding_
+* Email Taylor Owen again
+* Email Group of potential presenters in Netherlands
 
 ### Other
 
@@ -18,7 +17,9 @@
 
 ## Tasks
 
-* Research that conference that Luis reminded me of
+* WBFGT - New plan to set up website
+* Check in on conference requirements and fees
+* Submit budget
 
 ## Longterm Research
 
@@ -29,7 +30,7 @@
 
 ## Important Dates
 
-* WBFGT due **January**
+* WBFGT due **January 27**
 * Dentist **January 29**
 * Email Matt Jones again **January 31**
 * Social Media and the Transformation of Public Space - **No later than March 7**
@@ -41,6 +42,7 @@
 ## Random
 
 * Email Finn Brunton.^[1]
+* Email Nick Felton?
 
 [1] Need to hear about everyone else before I move ahead with this. Once schedule is confirmed can send him an email about mutual research interests and get in touch with *Brett Gary* about details.
 
