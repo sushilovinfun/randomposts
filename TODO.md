@@ -4,11 +4,12 @@
 
 ### School
 
-* _Email Dennis - Re "R"_
-* Email Ivy *wait a few days for this*
-* Email Graham
+* Email Graham Again
 * Email David Stark back (Share Economy)
-* _Email Andie - Course and Funding_
+* Course and Funding -- Review with mom tentative budget
+* Email Taylor Owen Again (and sooner rather than later)
+* Email Social Media Group After Meeting with Lluis
+* Email Richard and then Chris about Funding
 
 ### Other
 
@@ -18,14 +19,21 @@
 
 ## Tasks
 
-* Research that conference that Luis reminded me of
+* Register for conferences
+* Complete NYU registration
 
 ## Longterm Research
 
 ### WBFGT
 
+* Set up websites for crowdfunding
 * Critique notes
 * Finish up explanation section
+
+### Dissertation
+
+* Rewards research
+* Check in with John
 
 ## Important Dates
 
