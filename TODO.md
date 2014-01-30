@@ -8,7 +8,6 @@
 * Email David Stark back (Share Economy)
 * Course and Funding -- Review with mom tentative budget
 * Email Taylor Owen Again (and sooner rather than later)
-* Email Social Media Group After Meeting with Lluis
 * Email Richard and then Chris about Funding
 * Email Group of potential presenters in Netherlands
 
@@ -61,3 +60,4 @@
 
 * Investigate free prescription glasses + free eye exam through Columbia
 * Investigate probiotics
+* Oral surgery
