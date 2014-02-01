@@ -8,21 +8,19 @@
 * Email David Stark back (Share Economy)
 * Course and Funding -- Review with mom tentative budget
 * Email Taylor Owen Again (and sooner rather than later)
-* Email Richard and then Chris about Funding
-* Email Group of potential presenters in Netherlands
+* Email Matt Jones again
 
 ### Other
 
 * Catch up with Ben
 * Time to hang out with Aditi
 * Email Travis about comic *wait until after done with project with John*
+* Update Klaus
 
 ## Tasks
 
-* Register for conferences
-* Complete NYU registration
+* Register for pre-mobile
 * WBFGT - New plan to set up website
-* Check in on conference requirements and fees
 * Submit budget
 
 ## Longterm Research
@@ -41,8 +39,6 @@
 ## Important Dates
 
 * WBFGT due **January 27**
-* Dentist **January 29**
-* Email Matt Jones again **January 31**
 * Social Media and the Transformation of Public Space - **No later than March 7**
 
 ## Reading
