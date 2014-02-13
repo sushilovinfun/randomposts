@@ -2,11 +2,11 @@
 
 ## Immediate
 
-* Plan Albany
-* Email Fabian
-* Set Grades
-* Dissertation reading and writing
-* DH Lab Reading and writing
+* ~Plan Albany~
+* ~Set Grades~
+* Dissertation reading and writing 7 hrs
+* DH Lab Reading and writing -- 1.5 hrs
+* Doctor - 212-854-9797
 
 ## Emails
 
