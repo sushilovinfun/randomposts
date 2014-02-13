@@ -1,14 +1,19 @@
 #Max's Big To Do List
 
+## Immediate
+
+* Plan Albany
+* Email Fabian
+* Set Grades
+* Dissertation reading and writing
+* DH Lab Reading and writing
+
 ## Emails
 
 ### School
 
 * Email Graham Again
-* Email David Stark back (Share Economy)
 * Course and Funding -- Review with mom tentative budget
-* Email Taylor Owen Again (and sooner rather than later)
-* Email Matt Jones again
 
 ### Other
 
