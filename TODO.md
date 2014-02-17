@@ -2,11 +2,12 @@
 
 ## Immediate
 
-* ~Plan Albany~
-* ~Set Grades~
-* Dissertation reading and writing 7 hrs
-* DH Lab Reading and writing -- 1.5 hrs
-* Doctor - 212-854-9797
+* writing 7 hrs
+* Email Taylor *Tonight*
+* Small Edits Chapter *Tonight*
+* Notes Marx
+* Email Liel
+* Conference Proposal - *Tonight*
 
 ## Emails
 
@@ -62,3 +63,7 @@
 * Investigate free prescription glasses + free eye exam through Columbia
 * Investigate probiotics
 * Oral surgery
+
+## Other
+
+Scott Osborn for key cards
