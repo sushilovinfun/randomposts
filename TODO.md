@@ -2,9 +2,7 @@
 
 ## Immediate
 
-* writing 7 hrs
 * Email Taylor *Tonight*
-* Small Edits Chapter *Tonight*
 * Notes Marx
 * Email Liel
 * Conference Proposal - *Tonight*
