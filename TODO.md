@@ -8,6 +8,8 @@
 * Notes Marx
 * Email Liel
 * Conference Proposal - *Tonight*
+* Email Liel and Joost on dates 
+* Fred Turner Stuff? Where do we stand?
 
 ## Emails
 
