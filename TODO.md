@@ -5,11 +5,7 @@
 * Notes Marx
 * Fred Turner Stuff? Where do we stand?
 	* Note that we still don't have a personal thing with Fred Turner. Should I email again?
-* Ideas for meeting with Taylor
-
-	* Gamification of the News
-	* Autoethnographic tool
-	* Work with Dennis -- Transgression and Piracy	
+* Email Taylor with follow up on meeting and figuring out the next steps
 
 ## Emails
 
@@ -40,7 +36,6 @@
 ### Dissertation
 
 * Rewards research
-* Check in with John
 
 ## Important Dates
 
