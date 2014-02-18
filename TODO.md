@@ -3,10 +3,13 @@
 ## Immediate
 
 * Notes Marx
-* Email Liel
-* Email Liel and Joost on dates 
 * Fred Turner Stuff? Where do we stand?
-* Print out proposal for Michael
+	* Note that we still don't have a personal thing with Fred Turner. Should I email again?
+* Ideas for meeting with Taylor
+
+	* Gamification of the News
+	* Autoethnographic tool
+	* Work with Dennis -- Transgression and Piracy	
 
 ## Emails
 
@@ -24,7 +27,6 @@
 
 ## Tasks
 
-* Register for pre-mobile
 * WBFGT - New plan to set up website
 * Submit budget
 
@@ -32,7 +34,6 @@
 
 ### WBFGT
 
-* Set up websites for crowdfunding
 * Critique notes
 * Finish up explanation section
 
