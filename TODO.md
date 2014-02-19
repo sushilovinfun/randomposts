@@ -31,6 +31,7 @@
 
 * WBFGT - New plan to set up website
 * Submit budget
+* make appointmebNT WITH Galloway and mention 2nd Gen Marxists 
 
 ## Longterm Research
 
