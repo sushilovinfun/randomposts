@@ -9,9 +9,7 @@
 * Email Dennis
 	* About Taylor Owen
 	* About Jekyll Tutorial
-	* About Vundle
-	* About Vim Plugins
-
+* Email José about Chris as chair
 
 ## Emails
 
@@ -31,7 +29,7 @@
 
 * WBFGT - New plan to set up website
 * Submit budget
-* make appointmebNT WITH Galloway and mention 2nd Gen Marxists 
+* make appointment with Galloway and mention 2nd Generation Marxists 
 
 ## Longterm Research
 
@@ -72,10 +70,6 @@
 * Knee
 * Probiotic Prescription
 * Hand shocked
-* ffoot problem 
+* foot problem 
 
 ## Other
-
-Scott Osborn for key cards
-
-EmEmail Glo Patrick Stewart clips
