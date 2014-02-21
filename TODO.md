@@ -2,15 +2,13 @@
 
 ## Immediate
 
-* Notes Marx
 * Fred Turner Stuff? Where do we stand?
 	* Note that we still don't have a personal thing with Fred Turner. Should I email again?
 * Email Taylor with follow up on meeting and figuring out the next steps
 * Email Dennis
 	* About Taylor Owen
 	* About Jekyll Tutorial
-* Email José about Chris as chair
-
+	* 
 ## Emails
 
 ### School
@@ -73,5 +71,3 @@
 * foot problem 
 
 ## Other
-
-Johns letter 
