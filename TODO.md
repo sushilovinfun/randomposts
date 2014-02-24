@@ -8,7 +8,6 @@
 * Email Dennis
 	* About Taylor Owen
 	* About Jekyll Tutorial
-	* 
 ## Emails
 
 ### School
@@ -22,7 +21,6 @@
 * Time to hang out with Aditi
 * Email Travis about comic *wait until after done with project with John*
 * Update Klaus
-* Need Definition of mindful in Lembo
 
 ## Tasks
 
@@ -43,7 +41,6 @@
 
 ## Important Dates
 
-* WBFGT due **January 27**
 * Social Media and the Transformation of Public Space - **No later than March 7**
 
 ## Reading
@@ -59,16 +56,6 @@
 
 ## Health
 
-* Investigate free prescription glasses + free eye exam through Columbia
 * Investigate probiotics
 * Oral surgery
 
-** On the 21st of Feb**
-
-* Stomach problems
-* Knee
-* Probiotic Prescription
-* Hand shocked
-* foot problem 
-
-## Other
