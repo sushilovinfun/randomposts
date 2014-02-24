@@ -22,6 +22,7 @@
 * Time to hang out with Aditi
 * Email Travis about comic *wait until after done with project with John*
 * Update Klaus
+* Need Definition of mindful in Lembo
 
 ## Tasks
 
