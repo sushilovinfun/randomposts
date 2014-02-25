@@ -5,6 +5,7 @@
 * Fred Turner Stuff? Where do we stand?
 	* Note that we still don't have a personal thing with Fred Turner. Should I email again?
 * make flyer for Benson talk. 
+* Email Todd with *multiple times* about Office Hours.
 
 ## Emails
 
@@ -46,10 +47,10 @@
 
 ## Random
 
-* Email Finn Brunton.^[1]
+* Email Finn Brunton.[^1]
 * Email Nick Felton?
 
-[1] Need to hear about everyone else before I move ahead with this. Once schedule is confirmed can send him an email about mutual research interests and get in touch with *Brett Gary* about details.
+[^1] Need to hear about everyone else before I move ahead with this. Once schedule is confirmed can send him an email about mutual research interests and get in touch with *Brett Gary* about details.
 
 ## Health
 
