@@ -8,6 +8,8 @@
 * Email Dennis
 	* About Taylor Owen
 	* About Jekyll Tutorial
+* make flyer for Benson talk. 
+
 ## Emails
 
 ### School
