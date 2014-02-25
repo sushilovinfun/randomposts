@@ -4,15 +4,12 @@
 
 * Fred Turner Stuff? Where do we stand?
 	* Note that we still don't have a personal thing with Fred Turner. Should I email again?
-* Email Taylor with follow up on meeting and figuring out the next steps
-* Email Dennis
-	* About Taylor Owen
-	* About Jekyll Tutorial
+* make flyer for Benson talk. 
+
 ## Emails
 
 ### School
 
-* Email Graham Again
 * Course and Funding -- Review with mom tentative budget
 
 ### Other
@@ -26,7 +23,6 @@
 
 * WBFGT - New plan to set up website
 * Submit budget
-* make appointment with Galloway and mention 2nd Generation Marxists 
 
 ## Longterm Research
 
@@ -38,6 +34,7 @@
 ### Dissertation
 
 * Rewards research
+* Figure out my native classifications
 
 ## Important Dates
 
@@ -57,5 +54,5 @@
 ## Health
 
 * Investigate probiotics
-* Oral surgery
+* Call Dental Clinic
 
