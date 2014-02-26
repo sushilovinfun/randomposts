@@ -5,7 +5,7 @@
 * Fred Turner Stuff? Where do we stand?
 	* Note that we still don't have a personal thing with Fred Turner. Should I email again?
 * make flyer for Benson talk. 
-* Email Todd with *multiple times* about Office Hours.
+* Email Todd with *multiple times* about Office Hours. xDelete this
 
 ## Emails
 
@@ -56,4 +56,3 @@
 
 * Investigate probiotics
 * Call Dental Clinic
-
