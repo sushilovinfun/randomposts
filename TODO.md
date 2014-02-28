@@ -8,6 +8,7 @@
 * make flyer for Benson talk. 
 * Utrecht deadline June
 * send note to stark about Share economy contest. 
+* email Erica 
 
 ## Emails
 
