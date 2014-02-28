@@ -7,6 +7,7 @@
     * Email Fred Turner ASAP
 * make flyer for Benson talk. 
 * Utrecht deadline June
+* send note to stark about Share economy contest. 
 
 ## Emails
 
