@@ -6,7 +6,7 @@
 	* Note that we still don't have a personal thing with Fred Turner. Should I email again?
     * Email Fred Turner ASAP
 * make flyer for Benson talk. 
-* uUtrecht deaDone deadline June
+* Utrecht deadline June
 
 ## Emails
 
