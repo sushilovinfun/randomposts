@@ -4,8 +4,8 @@
 
 * Fred Turner Stuff? Where do we stand?
 	* Note that we still don't have a personal thing with Fred Turner. Should I email again?
+    * Email Fred Turner ASAP
 * make flyer for Benson talk. 
-* Email Todd with *multiple times* about Office Hours. xDelete this
 
 ## Emails
 
