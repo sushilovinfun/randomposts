@@ -5,11 +5,8 @@
 * Fred Turner Stuff? Where do we stand?
 	* Note that we still don't have a personal thing with Fred Turner. Should I email again?
     * Email Fred Turner ASAP
-* make flyer for Benson talk. 
 * Utrecht deadline June
-* send note to stark about Share economy contest. 
-* email Erica 
-* email will
+
 
 ## Emails
 
