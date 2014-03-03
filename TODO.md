@@ -40,7 +40,6 @@
 
 ## Important Dates
 
-* Social Media and the Transformation of Public Space - **No later than March 7**
 
 ## Reading
 
