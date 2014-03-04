@@ -6,7 +6,9 @@
 	* Note that we still don't have a personal thing with Fred Turner. Should I email again?
     * Email Fred Turner ASAP
 * Utrecht deadline June
-
+* Get lecture off phone for Chris
+* Email Erica 
+* Email Liel and Taylor by end of the week
 
 ## Emails
 

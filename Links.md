@@ -22,3 +22,8 @@ Ron Lembo - writer of *Thinking Through Television* - <https://www.amherst.edu/p
 * THE NYC TOP CHEF DINING GUIDE <http://www.thrillist.com/eat/new-york/the-nyc-top-chef-dining-guide-thrillist-new-york>
 
 * Podcast by Lessig <http://lesterland.lessig.org/#podcast>
+
+## Fun Websites
+
+* Public Books <http://www.publicbooks.org/>
+* The Big Round Table <http://www.thebigroundtable.com/>
