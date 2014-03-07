@@ -8,7 +8,9 @@
 * Utrecht deadline June
 * Get lecture off phone for Chris
 * Email Erica 
-* Email Liel and Taylor by end of the week
+* Email Liel
+* Prepare a one page proposal for Taylor including *Main questions*, *Timeline* and *areas covered?* -- might want to confirm with Taylor
+
 
 ## Emails
 
