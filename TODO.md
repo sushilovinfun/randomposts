@@ -9,10 +9,7 @@
 * Get lecture off phone for Chris
 * Email Liel
 * Prepare a one page proposal for Taylor including *Main questions*, *Timeline* and *areas covered?* -- might want to confirm with Taylor
-* Meet Chris at Brad's at 1:00 PM
-* Email Saskia About He writing
 * Email Anya
-* Set up meeting with Michael
 
 
 ## Assingnments
@@ -23,7 +20,6 @@
 * Midterm for Marx
 * Midterm for Dennis -- First Syllabus (2 options)
 * Presentation for Diss Seminar
-
 
 ## Emails
 
