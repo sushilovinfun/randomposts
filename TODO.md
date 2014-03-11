@@ -61,6 +61,9 @@
 ## Reading
 
 * Thomas' Work - Not sure who Thomas is... review
+* Deuze's Media Life
+* Bourdieu -- Distinction
+
 
 ## Random
 
