@@ -15,6 +15,16 @@
 * Set up meeting with Michael
 
 
+## Assingnments
+
+* Lecture on Digital and News
+* Essay for ICA
+* Essay for Pre-Mobile
+* Midterm for Marx
+* Midterm for Dennis -- First Syllabus (2 options)
+* Presentation for Diss Seminar
+
+
 ## Emails
 
 ### School
