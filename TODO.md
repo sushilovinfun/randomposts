@@ -2,11 +2,11 @@
 
 ## Immediate
 
-* Fred Turner Stuff? Where do we stand?
-	* Note that we still don't have a personal thing with Fred Turner. Should I email again?
-    * Email Fred Turner ASAP
-* Utrecht deadline June
-* Get lecture off phone for Chris
+* ~~Fred Turner Stuff? Where do we stand?~~
+	* ~~Note that we still don't have a personal thing with Fred Turner. Should I email again?~~
+    * ~~Email Fred Turner ASAP~~
+* ~~Utrecht deadline June~~ Email Utrecht to check in in *April*
+* ~~Get lecture off phone for Chris~~
 * Email Liel
 * Prepare a one page proposal for Taylor including *Main questions*, *Timeline* and *areas covered?* -- might want to confirm with Taylor
 * Email Anya
@@ -59,6 +59,7 @@
 * Thomas' Work - Not sure who Thomas is... review
 * Deuze's Media Life
 * Bourdieu -- Distinction
+* GGoff man - - presentation 
 
 
 ## Random
