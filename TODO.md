@@ -2,14 +2,10 @@
 
 ## Immediate
 
-* ~~Fred Turner Stuff? Where do we stand?~~
-	* ~~Note that we still don't have a personal thing with Fred Turner. Should I email again?~~
-    * ~~Email Fred Turner ASAP~~
-* ~~Utrecht deadline June~~ Email Utrecht to check in in *April*
-* ~~Get lecture off phone for Chris~~
+* Email Fred Turner ASAP
+* Email Utrecht to check in in *April*
 * Email Liel
 * Prepare a one page proposal for Taylor including *Main questions*, *Timeline* and *areas covered?* -- might want to confirm with Taylor
-* Email Anya
 
 
 ## Assingnments
@@ -20,12 +16,11 @@
 * Midterm for Marx
 * Midterm for Dennis -- First Syllabus (2 options)
 * Presentation for Diss Seminar
+* Proposal for Taylor
 
 ## Emails
 
 ### School
-
-* Course and Funding -- Review with mom tentative budget
 
 ### Other
 
@@ -43,8 +38,7 @@
 
 ### WBFGT
 
-* Critique notes
-* Finish up explanation section
+#### Schedule of Visits
 
 ### Dissertation
 
@@ -59,7 +53,7 @@
 * Thomas' Work - Not sure who Thomas is... review
 * Deuze's Media Life
 * Bourdieu -- Distinction
-* GGoff man - - presentation 
+* Goff man -- presentation
 
 
 ## Random
