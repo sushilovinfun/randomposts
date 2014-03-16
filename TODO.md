@@ -11,6 +11,17 @@
 ## Assingnments
 
 * Lecture on Digital and News
+    * *Present Shock*
+    * *You are Not A Gadget*
+    * <http://5harad.com/papers/bubbles.pdf>
+    * <http://www.newyorker.com/online/blogs/elements/2014/01/doesnt-anyone-read-the-news.html>
+    * <http://messymatters.com/bubble/>
+    * Into the Newsroom
+    * Wealth of Networks
+    * Here comes Everybody -- Word on the quake
+    * Connected? 
+    * Chapter in Rainie -- Networked
+    * riptide
 * Essay for ICA
 * Essay for Pre-Mobile
 * Midterm for Marx
