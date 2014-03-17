@@ -3,6 +3,9 @@
 ## Columbia
 
 * Space at the J-School <https://ems.cuit.columbia.edu/journalism/BrowseForSpace.aspx>
+* Dental Implant <http://dental.columbia.edu/page/implant-center-212-305-5577>
+* Dental Plan List <http://www.cumc.columbia.edu/student/health/pdf/dental.pdf>
+
 
 ## Cheat Sheets
 
