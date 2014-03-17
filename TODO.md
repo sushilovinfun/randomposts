@@ -76,5 +76,3 @@
 
 ## Health
 
-* Investigate probiotics
-* Call Dental Clinic
