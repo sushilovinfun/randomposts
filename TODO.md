@@ -65,6 +65,7 @@
 * Deuze's Media Life
 * Bourdieu -- Distinction
 * Goff man -- presentation
+* boyd -- It's Complicated
 
 
 ## Random
