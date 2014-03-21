@@ -8,7 +8,7 @@
 * Prepare a one page proposal for Taylor including *Main questions*, *Timeline* and *areas covered?* -- might want to confirm with Taylor
 
 
-## Assingnments
+## Assignments
 
 * Lecture on Digital and News
     * *Present Shock*
@@ -27,7 +27,6 @@
 * Midterm for Marx
 * Midterm for Dennis -- First Syllabus (2 options)
 * Presentation for Diss Seminar
-* Proposal for Taylor
 
 ## Emails
 
