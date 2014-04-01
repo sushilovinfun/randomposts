@@ -5,9 +5,6 @@
 * Email Utrecht to check in in *April*
 * Email Liel
 * Email Taylor
-* Email Ben
-* Email Alexander
-* Email David
 
 ## Assignments
 
