@@ -6,6 +6,9 @@
 * Dental Implant <http://dental.columbia.edu/page/implant-center-212-305-5577>
 * Dental Plan List <http://www.cumc.columbia.edu/student/health/pdf/dental.pdf>
 
+## Useful Academic Resources
+
+* Annotated Bibliographies on Philosophy <http://philpapers.org/>
 
 ## Cheat Sheets
 

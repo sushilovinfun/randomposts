@@ -6,7 +6,9 @@
 * Email Utrecht to check in in *April*
 * Email Liel
 * Prepare a one page proposal for Taylor including *Main questions*, *Timeline* and *areas covered?* -- might want to confirm with Taylor
-
+* Email Ben
+* Email Alexander
+* Email David
 
 ## Assignments
 
@@ -24,8 +26,6 @@
     * riptide
 * Essay for ICA
 * Essay for Pre-Mobile
-* Midterm for Marx
-* Midterm for Dennis -- First Syllabus (2 options)
 * Presentation for Diss Seminar
 
 ## Emails
@@ -42,7 +42,6 @@
 ## Tasks
 
 * WBFGT - New plan to set up website
-* Submit budget
 
 ## Longterm Research
 
