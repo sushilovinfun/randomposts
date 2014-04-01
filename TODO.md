@@ -2,10 +2,9 @@
 
 ## Immediate
 
-* Email Fred Turner ASAP
 * Email Utrecht to check in in *April*
 * Email Liel
-* Prepare a one page proposal for Taylor including *Main questions*, *Timeline* and *areas covered?* -- might want to confirm with Taylor
+* Email Taylor
 * Email Ben
 * Email Alexander
 * Email David
