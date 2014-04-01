@@ -5,6 +5,7 @@
 * Email Utrecht to check in in *April*
 * Email Liel
 * Email Taylor
+* Email class about another go-through on presentations befor 11th. 
 
 ## Assignments
 
