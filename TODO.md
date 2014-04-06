@@ -7,6 +7,9 @@
 * Email Taylor
 * Email class about another go-through on presentations befor 11th. 
 * read encounters and bourdieu 
+* Marx (with review of 10)
+* Dennis post 
+* gdelt and other stuff
 
 
 ## Assignments
