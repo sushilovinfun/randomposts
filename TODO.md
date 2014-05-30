@@ -4,6 +4,9 @@
 
 * Email Liel
 * Email Taylor
+* Dennis post 
+* gdelt and other stuff
+
 
 ## Assignments
 
