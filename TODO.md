@@ -2,10 +2,8 @@
 
 ## Immediate
 
-* Email Utrecht to check in in *April*
 * Email Liel
 * Email Taylor
-* Email class about another go-through on presentations befor 11th. 
 
 ## Assignments
 
@@ -21,9 +19,6 @@
     * Connected? 
     * Chapter in Rainie -- Networked
     * riptide
-* Essay for ICA
-* Essay for Pre-Mobile
-* Presentation for Diss Seminar
 
 ## Emails
 
@@ -31,7 +26,6 @@
 
 ### Other
 
-* Catch up with Ben
 * Time to hang out with Aditi
 * Email Travis about comic *wait until after done with project with John*
 * Update Klaus
